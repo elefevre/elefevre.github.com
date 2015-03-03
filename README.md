@@ -1,3 +1,3 @@
 Cuppa Consulting
 ===================
-These are the pages for http:://cuppaconsulting.com/
+These are the pages for http://cuppaconsulting.com/
